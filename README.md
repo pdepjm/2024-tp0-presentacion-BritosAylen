@@ -5,5 +5,6 @@ Buenaas, soy Aylen ✨
 
 ## Sobre mi:
 Tengo 21 años y esta materia es la ultima que me queda de 2do. Pequeño detalle es que debo 6 finales, pero bueeeno se seguiran pateando, no sean yo :)
-
-
+Es muy probable que me vean con el flequillo chueco y corto, ya que cortarmelo yo es mi forma de bajar mi ansiedad y crisis.
+Me gustan mucho los deporte.
+Prefiero lo Salado, pero nunca me voy a negar a una buena porcion de Lemon Pie.
